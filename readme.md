@@ -1,0 +1,1 @@
+Hvis du leser dette er sikkerheten på pc-en din for svak. Heldigvis har en kompetent sikkerhetsekspert funnet dette hullet.
